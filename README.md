@@ -33,3 +33,8 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 * [SKYWATCH](https://vimeo.com/377266286)
 * [Slaughterbots](https://www.youtube.com/watch?v=9CO6M2HsoIA)
 * [Maps Is Down (Black Mirror Spoof)](https://www.youtube.com/watch?v=kBGo942Xyrg)
+
+### The Cloud™
+
+* [The Cloud - Kitty Flanagan](https://www.youtube.com/watch?v=CFdZWgiAj8I)
+* [BIG DATA - 'L1ZY'](https://vimeo.com/295361990)
