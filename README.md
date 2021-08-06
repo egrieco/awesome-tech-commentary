@@ -42,3 +42,8 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 ### Internet of Things
 
 * [The Internet of S_t Song](https://vimeo.com/221449473) [(YouTube)](https://www.youtube.com/watch?v=TIhW61FMNIc)
+
+### Bitcoin and Cryptocurrencies
+
+* [Probably A Coin](https://vimeo.com/261918211)
+* [Rent Tokens](https://vimeo.com/257412096)
