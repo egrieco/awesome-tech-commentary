@@ -47,3 +47,12 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 
 * [Probably A Coin](https://vimeo.com/261918211)
 * [Rent Tokens](https://vimeo.com/257412096)
+
+### Virtual and Augmented Reality
+
+* [Best Friend](https://vimeo.com/276021150)
+* [A Virtual Nightmare](https://www.youtube.com/watch?v=68edfhXT4qI)
+* [UNCANNY VALLEY](https://vimeo.com/147365861)
+* [HYPER-REALITY](https://vimeo.com/166807261)
+* [Augmented (hyper)Reality - Domestic Robocop](https://vimeo.com/8569187)
+* [Augmented City 3D](https://vimeo.com/14294054)
