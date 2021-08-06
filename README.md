@@ -90,3 +90,10 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 * [Amazon Echo - SNL](https://www.youtube.com/watch?v=YvT_gqs5ETk)
 * [The Big Brother State](https://vimeo.com/2764541)
 * [The human eye webcam.](https://www.youtube.com/watch?v=JMxr8Nq-w_w)
+
+## Music Videos
+
+* [Get Likes](https://vimeo.com/343239308)
+* [De Staat - Get On Screen (official video)](https://vimeo.com/169011057) [(YouTube)](https://www.youtube.com/watch?v=IEeTQvJ0Om0)
+* [Freak Kitchen - Freak of the Week](https://www.youtube.com/watch?v=y2vzBdIejVY)
+* [Algorithm](https://www.youtube.com/watch?v=0MWtVoSPewI)
