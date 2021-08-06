@@ -33,6 +33,9 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 * [SKYWATCH](https://vimeo.com/377266286)
 * [Slaughterbots](https://www.youtube.com/watch?v=9CO6M2HsoIA)
 * [Maps Is Down (Black Mirror Spoof)](https://www.youtube.com/watch?v=kBGo942Xyrg)
+* [Becoming One](https://vimeo.com/120338955)
+* [Transparent Machines™](https://vimeo.com/78716671)
+* [DarkAge2.0](https://vimeo.com/376789571)
 
 ### The Cloud™
 
