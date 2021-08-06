@@ -38,3 +38,7 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 
 * [The Cloud - Kitty Flanagan](https://www.youtube.com/watch?v=CFdZWgiAj8I)
 * [BIG DATA - 'L1ZY'](https://vimeo.com/295361990)
+
+### Internet of Things
+
+* [The Internet of S_t Song](https://vimeo.com/221449473) [(YouTube)](https://www.youtube.com/watch?v=TIhW61FMNIc)
