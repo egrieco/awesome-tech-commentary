@@ -66,3 +66,9 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 * [Professional Dick Pic Photographer](https://www.youtube.com/watch?v=gPcR-wk_8Fg)
 * [Guy asks out INSTAGRAM MODEL and she says YES.](https://www.youtube.com/watch?v=MjlaTwflrg8)
 * [ENVY_Зависть](https://www.youtube.com/watch?v=HGwzFN2goMw)
+
+### Apple
+
+* [Nineteen Eighty-Fortnite](https://www.youtube.com/watch?v=euiSHuaw6Q4)
+* [Accents that Can’t Sell an iPhone](https://www.youtube.com/watch?v=vqF6bIwSK9A)
+* [Apple Launches the iCow September Event 2019](https://www.youtube.com/watch?v=-V6K27CVg-U)
