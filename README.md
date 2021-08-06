@@ -23,3 +23,13 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 * [Probably in the very near Future](https://vimeo.com/264745588) (2 of 4)
 * [Welcome to the very near Future](https://vimeo.com/309101933) (3 of 4)
 * [Lately in the very near Future](https://vimeo.com/461387047) (4 of 4)
+
+### Short Films
+
+* [While You Were Sleeping](https://www.youtube.com/watch?v=ymmV39G7uT8)
+* [Branded Dreams - The Future Of Advertising](https://vimeo.com/150799305)
+* [Change Return](https://vimeo.com/438210156)
+* [Waffle](https://vimeo.com/437711138)
+* [SKYWATCH](https://vimeo.com/377266286)
+* [Slaughterbots](https://www.youtube.com/watch?v=9CO6M2HsoIA)
+* [Maps Is Down (Black Mirror Spoof)](https://www.youtube.com/watch?v=kBGo942Xyrg)
