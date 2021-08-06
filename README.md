@@ -56,3 +56,13 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 * [HYPER-REALITY](https://vimeo.com/166807261)
 * [Augmented (hyper)Reality - Domestic Robocop](https://vimeo.com/8569187)
 * [Augmented City 3D](https://vimeo.com/14294054)
+
+### Social Media
+
+* [The Social Media Information Diet](https://www.youtube.com/watch?v=5Xzq1HDUmRA)
+* [Instagram Stalking in Real Life](https://www.youtube.com/watch?v=ydAyILm4i1A)
+* [Instacreep](https://www.youtube.com/watch?v=V51bdkkYyyM)
+* [Dickileaks](https://www.youtube.com/watch?v=yd8b6g2Dj48)
+* [Professional Dick Pic Photographer](https://www.youtube.com/watch?v=gPcR-wk_8Fg)
+* [Guy asks out INSTAGRAM MODEL and she says YES.](https://www.youtube.com/watch?v=MjlaTwflrg8)
+* [ENVY_Зависть](https://www.youtube.com/watch?v=HGwzFN2goMw)
