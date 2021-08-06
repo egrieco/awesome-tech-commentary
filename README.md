@@ -4,6 +4,11 @@ A collection of videos taking a critical look at technology.
 
 NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 
+## Canonical Sources
+
+* [GitLab](https://gitlab.com/egrieco/awesome-tech-commentary.git)
+* [GitHub](https://github.com/egrieco/awesome-tech-commentary.git)
+
 ## Satire
 
 ### [Stevie Martin](https://www.youtube.com/c/StevieMartin)
