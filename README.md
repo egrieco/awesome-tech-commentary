@@ -72,3 +72,7 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 * [Nineteen Eighty-Fortnite](https://www.youtube.com/watch?v=euiSHuaw6Q4)
 * [Accents that Can’t Sell an iPhone](https://www.youtube.com/watch?v=vqF6bIwSK9A)
 * [Apple Launches the iCow September Event 2019](https://www.youtube.com/watch?v=-V6K27CVg-U)
+
+### Sci-Fi Tropes
+
+* [Floaty Holograms Are Stupid](https://www.youtube.com/watch?v=oQoNkcCvaYM)
