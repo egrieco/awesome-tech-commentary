@@ -76,3 +76,8 @@ NOTE: Some content below is **NSFW** and/or contains disturbing themes.
 ### Sci-Fi Tropes
 
 * [Floaty Holograms Are Stupid](https://www.youtube.com/watch?v=oQoNkcCvaYM)
+
+### Online Shopping
+
+* [If High Street Shopping was like Online Shopping Age of Outrage](https://www.youtube.com/watch?v=PrwQ-guwvfs)
+* [Royal Mail - Online Shopping - (Director's Cut)](https://vimeo.com/228212165)
